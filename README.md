@@ -6,3 +6,8 @@ Same logic applies to all facets of life. Be present, consistent, and full in yo
 
 ( ͡❛ ͜ʖ ͡❛)
 
+
+And again,
+
+And, again.
+
